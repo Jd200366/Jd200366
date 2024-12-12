@@ -1,5 +1,5 @@
 ## Howdy! Welcome to my page
-Here are some ideas to get you started:
+Just the template cause im lazy.
 
 - 🔭 I’m currently working on getting better as a person, as a friend, a boyfriend, and as an intellectual.
 - 🌱 I’m currently learning how to code, philosphy, and all subjects covered in my highschool classes.
